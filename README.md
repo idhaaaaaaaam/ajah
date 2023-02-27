@@ -1,0 +1,2 @@
+# ajah
+ini aku
